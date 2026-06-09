@@ -1,4 +1,4 @@
-# 
+# Open Source Wave tools for Mac OS | Premium Wave tools for PC Windows. Featuring mobile apps and bank reconciliation — optimized for maximum performance on every platform.
 
 
 
